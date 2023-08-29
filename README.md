@@ -2,7 +2,7 @@
 - 👀 I’m interested in building web projects
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me (9490468587)
+- 📫 How to reach me (9490468587 || 2142188553)
 
 <!---
 Manojkumar1713/Manojkumar1713 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
